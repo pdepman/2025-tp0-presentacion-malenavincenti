@@ -10,6 +10,7 @@ Siempre he sido una persona algo dispersa lo que me llevo ha probar diversas act
 Hice natación por mucho tiempo y tuve la oportunidad de tocar el violín en una orquesta juvenil durante unos 4 años hasta que inició la pandemia.
 
 Desde mediados de 2023 empecé a jugar airsoft, nos reunimos una vez al mes en partidas publicas o privadas entre familia y amigos, aunque es más lindo ir en climas frescos como otoño e invierno principalmente ya que correr toda tapada con calor y una réplica pesada de poco más de 2 kilos si que es algo dificil.
+Tal vez es más conocido el paintball que el airsoft si bien la base es similar, un juego en equipos que se disparan entre si, tienen diferencias. Se ve más que nada en la munición y las marcadoras, el airsoft usa réplicas realistas de armas que disparan BBs (pequeños balines de plástico) en cambio en paintball se usan marcadoras que no parecen armas reales y disparan bolas de pintura de mayor tamaño que dejan marca.
 
 El año pasado redescubrí el vóley, ya que había aprendido lo básico de niña en un verano con mis abuelos, ahora este año juego en recreativos mixtos todas las semanas. También tengo actividades que me relajan me gusta hacer pequeños proyectos a crochet y cuidar mis plantas, que por cierto tengo muchas más que nada plantas de interior y suculentas.
 
